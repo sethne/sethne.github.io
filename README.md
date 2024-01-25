@@ -1,1 +1,0 @@
-# sethne.github.io
